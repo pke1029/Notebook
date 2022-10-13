@@ -1,1 +1,0 @@
-Undergraduate Ambassador Scheme 
